@@ -1,0 +1,2 @@
+# Kaotikkoin
+Ethereum Token
